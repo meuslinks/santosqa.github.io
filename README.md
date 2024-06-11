@@ -1,8 +1,8 @@
-# [https://www.openai.com](https://www.openai.com)
 
+# [about.me/santosqa](https://about.me/santosqa)
 
-[https://www.santosqa.com](https://www.santosqa.com)
+[www.santosqa.com](https://www.santosqa.com)
 
-[https://www.openai.com](https://www.apartamentovistamar.com/)
+[www.apartamentovistamar.com](https://www.apartamentovistamar.com/)
 
 
